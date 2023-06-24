@@ -1,1 +1,1 @@
-# Internship-certificate
+# LearnSmahser-Internship-certificate
